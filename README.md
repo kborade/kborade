@@ -8,3 +8,4 @@
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...I cant bake for living!
 - Tableau Profile - https://public.tableau.com/app/profile/kborade
+- LinkedIn - www.linkedin.com/in/krutali-borade
